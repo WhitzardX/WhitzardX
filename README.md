@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Science, Photography and Teaching
 - 🌱 I’m currently learning Data Science and Statistics
 - 💞️ I’m looking to collaborate on projects that would help me grow faster in my field of study
-- 📫 How to reach me www.instagram.com/steve.in_/
+- 📫 How to reach me whitzardx@gmail.com
 - 😄 Pronouns: Try Me
 - ⚡ Fun fact: lazy but love challenges
 - Bye!
